@@ -9,7 +9,7 @@
  - 150 gramas de queijo coalho (ralado)
  - 2 colheres de sopa de manteiga
  - cheiro verde (a gosto)
- ### Modo de Preparo
+### Modo de Preparo
 1. Comece separando os ingredientes necessários para o preparo da receita. Corte a linguiça calabresa em rodelas, em formato de meia lua ou, se preferir, corte-a em cubinhos. (Dica: a farinha de milho que estamos usando é a flocada, para garantir um cuscuz mais macio!)
 2. Hidrate o flocão de milho com 1 xícara e meia de água filtrada e, em seguida, adicione o sal.
 3. Misture tudo com uma colher e deixe a massa descansar para hidratar por 15 minutos, pelo menos. (Dica: certifique-se se o ponto da massa está correto, pegando uma porção na mão. Aperte-a e veja se continua quebradiça ou se já está mais firme, soltando um pouco de água. Esse da foto é o ponto certo da hidratação.)
